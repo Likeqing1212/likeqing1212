@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+我是李可卿，就读于淄博职业学院，预计 2021 年毕业。
+我很喜欢交朋友。
+我的邮箱是 1806365104@qq.com ，欢迎给我发邮件。
